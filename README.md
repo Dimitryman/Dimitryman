@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Dimitryman
+- 👀 I’m interested in Making games
+- 🌱 I’m currently learning Unity
+- 💞️ I’m looking to collaborate on not really anything at the moment
+- 📫 My discord is Dimitry#1039
